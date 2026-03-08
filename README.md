@@ -11,3 +11,4 @@ contributions welcome
 
 my (via phone) ID: 355088501781591 
 the operator, not "owner"
+i have a natural dreadlock and live in latvia (rn, 33, 408)
